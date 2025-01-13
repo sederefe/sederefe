@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...456
 - 📫 How to reach me ...gfhh455415
-- 😄 Pronouns: ...dsf
+- 😄 Pronouns: ...8556
 - ⚡ Fun fact: ...1551asdasdsdf1
 995123123546545fer
 <!---sdf45
