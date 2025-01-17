@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sederefe
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...456
+- 🌱 I’m currently learning ...45688
 - 📫 How to reach me ...gfhh455415
 - 😄 Pronouns: ...8556
 - ⚡ Fun fact: ...1551asdasdsdf1
