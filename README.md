@@ -1,7 +1,7 @@
 nhwerrrrrrrrr6666hmjcxv- 👋 Hi, I’m @sederefe
 - 👀 I’m interested in ...8536
 - 🌱 I’m currently learning ...45688
-- 📫 How to reach me ...gfhh4554151551nhg
+- 📫 How to reach me ...gfhh4554151551nhgsdd
 - 😄 Pronouns: ...8556ujmnghnbv
 - ⚡ Fun fact: ...1551asdasdsdf1sdcad,uuk126ghvbn
 hgnhghg
