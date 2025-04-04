@@ -6,7 +6,8 @@ nhwerrrrrrrrr6666hmjcxv- 👋 Hi, I’m @sederefe
 - ⚡ Fun fact: ...1551asdasdsdf1sdcad,uuk126ghvbn
 hgnhghgxz332
 <!---sdf456996cvxgfbfffsdfsdchgnghgh
-sederefe/sederefe is a ✨ special ✨ repository because its `README.md` (thi88s 53file) appears on yo0266ur GitsdffdHub profvbbvile.
+sederefe/sederefe is a ✨ special ✨ repository because its `README.md` (thi88s 53file) appears on yo0266ur GitsdffdHub p
+ofvbbvile.
 You can click the Preview link to take a look fsdat your fsd45.525xcvcxdasdsadfgdfxcv
 --->253.96526htyrthrt
 dfghtyhy
